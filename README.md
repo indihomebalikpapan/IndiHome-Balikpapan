@@ -1,2 +1,2 @@
 # IndiHome-Balikpapan
-Marketing pemasangan WI-FI IndiHome diwilayah Balikpapan dan sekitarnya. Daftar hari ini, dipasang hari ini.
+Menerima pemasangan WI-FI IndiHome Balikpapan 2019. Update harga paket indihome Balikpapan terbaru 2019
